@@ -1,4 +1,4 @@
-# Hi there 👋 Kerry Odhiambo
+# Hi there 👋 KERRY ODHIAMBO
 
 
 **Kerryodhiambo670-lab/Kerryodhiambo670-lab** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
