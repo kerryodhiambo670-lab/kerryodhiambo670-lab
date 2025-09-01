@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on a new project that focuses on eco-friendly packaging.
 - 🌱 I’m currently learning Coursera to improve my skills in data analysis.
-- 👯 I’m looking to collaborate onsustainable business projects that create real community impact.
+- 👯 I’m looking to collaborate on sustainable business projects that create real community impact.
 - 🤔 I’m looking for help with with preparing a business proposal for my company. 
 - 💬 Ask me about Eco Glass, and I will share how our innovative solutions combine sustainability, quality, and modern design to create a greener future.
 - 📫 How to reach me:For inquiries about Eco Glass, kindly reach me at kerryodhiambo670@gmail.com
